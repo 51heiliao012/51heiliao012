@@ -4,7 +4,7 @@
 
 永久地址（需VPen、科学上网） https://51hl.vip （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://cdn.huomaqun.com/aqwyqrcode/2024-09-27/8caa8fb00a0b6db14defdcf4471a8e1d.jpg  （请复制到浏览器打开）
+加入微信扣扣粉丝群 [button href="qun.html"]点我进群[/button]  （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/cg52_day/3 （请复制到浏览器打开）
 
