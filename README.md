@@ -1,10 +1,10 @@
 51大赛最新地址更新于2024年10月21日
 
-51大赛最新地址 https://51hl11.com  （请复制到浏览器打开）
+51大赛最新地址 https://51hl12.com  （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://51hl.vip （请复制到浏览器打开）
 
-加入扣扣粉丝群 https://51hl11.com/?path=/qun.html （请复制到浏览器打开）
+加入扣扣粉丝群 https://51hl12.com/?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/cg52_day/3 （请复制到浏览器打开）
 
